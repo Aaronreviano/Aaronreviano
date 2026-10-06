@@ -2,8 +2,6 @@
 
 * don't take my stuff or copy without my permission!. *
 
-https://github.com/user-attachments/assets/83913475-271a-47c2-8745-d85438ffcf07
-
 "I rarely online.. And sometimes I will leave you or offline without permission sorry, mates, but you can call me with any pronouns!"
 
 Info! : C + H + INT = ✅  DNC + W2I (sometimes, if I busy!) 
