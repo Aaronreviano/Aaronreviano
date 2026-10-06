@@ -1,16 +1,17 @@
-## Hi there 👋
+## 🎨  digital Artist who with phone lagging as hell (sometimes or almost everyday 💔) 🖌️ 
 
-<!--
-**Aaronreviano/Aaronreviano** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+* don't take my stuff or copy without my permission!. *
 
-Here are some ideas to get you started:
+"I rarely online.. And sometimes I will leave you or offline without permission sorry, mates, but you can call me with any pronouns!"
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Info! : C + H + INT = ✅  DNC + W2I (sometimes, if I busy!) 
+*also, we can RP but I'm bad at interact!* 
+
+! BUT I WILL DNI, IF I DOESN'T FEEL WELL, AND I WILL KEEP MY DISTANCE ! 
+
+(Im too bad at interact and kinda shy as hell, as type person. ;`{)
+
+ Fandom ‼️ : "Im literally multi-fandom! (Cuz why not?) so, don't ask why Im always using different character!" 
+*my English is kinda bad (so, please be patient for my resp + I'm slow resp.)*
+
+"Mates.. Remember this, I almost certainly don't have a long friendship relationship so think again before you befriend me sometimes I can be mean or rude at any time, I'm sorry if I've ever done it to you I kinda feel bad about it.." 
