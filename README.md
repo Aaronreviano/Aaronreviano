@@ -7,7 +7,7 @@
 Info! : C + H + INT = ✅  DNC + W2I (sometimes, if I busy!) 
 *also, we can RP but I'm bad at interact!* 
 
-! BUT I WILL DNI, IF I DOESN'T FEEL WELL, AND I WILL KEEP MY DISTANCE ! 
+! BUT I WILL DNI, IF I DOESN'T FEEL WELL, AND I WILL KEEP MY DISTANCE, WHEN I USE C+H BUT ALSO DNI OR DNIUF (RARELY USE!) YOU CAN STILL CUDDLE ME BUT DON'T NOT INTRACT ! 
 
 (Im too bad at interact and kinda shy as hell, as type person. ;`{)
 
