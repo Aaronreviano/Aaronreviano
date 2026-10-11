@@ -9,7 +9,7 @@ Info! : C + H + INT = ✅  DNC + W2I (sometimes, if I busy!)
 
 ! BUT I WILL DNI, IF I DOESN'T FEEL WELL, AND I WILL KEEP MY DISTANCE, WHEN I USE C+H BUT ALSO DNI OR DNIUF (RARELY USE!) YOU CAN STILL CUDDLE ME BUT DON'T NOT INTRACT ! 
 
-(Im too bad at interact and kinda shy as hell, as type person. ;`{)
+(Im too bad at interact and kinda shy as hell, as type person and I won't answer sensitive or private questions!. ;`{)
 
  Fandom ‼️ : "Im literally multi-fandom! (Cuz why not?) so, don't ask why Im always using different character!" 
 *my English is kinda bad (so, please be patient for my resp + I'm slow resp.)*
