@@ -6,7 +6,7 @@ Banner by : @Just_R0n!! 💤 = me
 
 ## 🎨  digital Artist who with phone lagging as hell (sometimes or almost everyday 💔) 🖌️ 
 
-⬇️ Sticker by @Mayois (on picmic)! 
+⬇️ Sticker by @Mayois (on picmix)! 
 
 <img width="500" height="500" alt="1000094714" src="https://github.com/user-attachments/assets/fe9eb301-f402-43d0-a963-6525aee3d99c" />
 
