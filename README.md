@@ -1,3 +1,9 @@
+Banner by : @Just_R0n!! 💤 = me
+
+             🚬🔎 
+             
+![1000094776](https://github.com/user-attachments/assets/c2597479-c47f-4e60-8c07-957a32e1d3bc)
+
 ## 🎨  digital Artist who with phone lagging as hell (sometimes or almost everyday 💔) 🖌️ 
 
 ⬇️ Sticker by @Mayois (on picmic)! 
