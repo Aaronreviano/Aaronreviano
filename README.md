@@ -13,13 +13,13 @@ Banner by : @Just_R0n!! 💤 = me
 
 ***don't take my stuff or copy without my permission.***
 
-💤 : " Might online on random time somehow"
+💤 : " Might online on random time somehow,,, "
 
 Tags: c+h, dnc, int, w2c, w2i, (the most I never or rarely use) DNI, DNIUF, DNIUID. 
 
 I use DNI if necessary, DNIUF when I near my friends but feel free to cuddle or sit near me if I still use tag c+h in my name 
 
-(Im too bad at interact and kinda shy as hell type person, I won't answer sensitive or private questions,,,)
+(Bad at communicating,,, ) 
 
 * multi-fandom * + rare pairship type person, (maybe?) 
  
